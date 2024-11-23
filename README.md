@@ -1,20 +1,20 @@
 
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+𝐵𝑂𝑁𝐼𝑃𝐻𝐴𝐶𝐸+𝐼𝑆+𝑀𝑌+𝑂𝑊𝑁𝐸𝑅+𓅓)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓+𝐼𝑆+𝑀𝑌+𝑂𝑊𝑁𝐸𝑅+𓅓)](https://git.io/typing-svg)
 
 </p>
- <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+ <img src="https://files.catbox.moe/zjc6j5.jpg" height="90" width="100%">
 
- <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝐁𝐎𝐍𝐈𝐏𝐇𝐀𝐂𝐄+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;Ibrahim+Adams+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
+ <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;Ibrahim+Adams+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
  <a href="https://files.catbox.moe/hdhlyw.gif">
  <img alt="BONIPHACE-MD" height="300" src="https://files.catbox.moe/hdhlyw.gif">
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝐁𝐎𝐍𝐈𝐏𝐇𝐀𝐂𝐄+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹)](https://git.io/typing-svg)
 
 
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://files.catbox.moe/zjc6j5.jpg" height="90" width="100%">
 
   </h1> 
-<p align="center">l introduce <b>BONIPHACE-MD</b>, a powerful simple WhatsApp bot </p>
+<p align="center">l introduce <b>𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓-MD</b>, a powerful simple WhatsApp bot </p>
 
 </p>
   <p align="center">
@@ -62,11 +62,11 @@
 
 
 
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://files.catbox.moe/zjc6j5.jpg" height="90" width="100%">
 
 <h1>Hey there! 👋</h1>
 
-<br><br> _Hi, I'm **BONIPHACE MD**, a frontend developer dedicated to crafting seamless digital experiences. With a keen eye for design and a knack for coding, I blend creativity with functionality to build sleek, responsive websites and intuitive web applications_
+<br><br> _Hi, I'm **𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓**, a frontend developer dedicated to crafting seamless digital experiences. With a keen eye for design and a knack for coding, I blend creativity with functionality to build sleek, responsive websites and intuitive web applications_
 <br><br>
 _In my non-coding hours, I enjoy sketching, 3D modeling, gaming, or embarking on cosmic exploration._ 🌌
 <br><br>
@@ -76,7 +76,7 @@ _In my non-coding hours, I enjoy sketching, 3D modeling, gaming, or embarking on
 
 
 
-## 1.FIRST STEP 
+## 1.FIRST STEP 𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓
 ## Fork Boniphace Md Repo
  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𝐶𝐿𝐼𝐶𝐾+𝑇𝑂+𝐹𝑂𝑅𝐾+𝑇𝐻𝐸+𝑅𝐸𝑃𝑂)](https://git.io/typing-svg)
 
@@ -89,7 +89,7 @@ star✨ my repo if you like this bot🤖
 
 ## 2.SECOND STEP 
 
- GET SESSION ID BY
+ GET SESSION ID BY 𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𝑇𝐻𝐼𝑆+𝐼𝑆+𝑆𝐸𝑆𝑆𝐼𝑂𝑁+𝑆𝐼𝑇𝐸+🤙)](https://git.io/typing-svg)
 
@@ -106,7 +106,7 @@ star✨ my repo if you like this bot🤖
 ### 3.THIRD STEP 
 1. If You Don't Have An Account On Heroku**
 
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://files.catbox.moe/zjc6j5.jpg" height="90" width="100%">
 
 - <a align="center"><a href="https://signup.heroku.com">
  <img src="https://img.shields.io/badge/Create%20Account%20Now-pink?style=for-the-badge&logo=heroku" width="220" height="38.45"/></a></p>
