@@ -76,8 +76,8 @@ _In my non-coding hours, I enjoy sketching, 3D modeling, gaming, or embarking on
 
 
 
-## 1.FIRST STEP mr hacker 
-## Fork Boniphace Md Repo
+## 1.FIRST STEP MR HACKER 
+## Fork MR HACKER Md Repo
  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𝐶𝐿𝐼𝐶𝐾+𝑇𝑂+𝐹𝑂𝑅𝐾+𝑇𝐻𝐸+𝑅𝐸𝑃𝑂)](https://git.io/typing-svg)
 
 </p>
@@ -188,7 +188,7 @@ CONTACT DEVELOPER ON WHATSAPP
 The WhatsApp Bot BONIPHACE-MD is released under the [MIT License](https://opensource.org/licenses/MIT).
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-🌟 THANK YOU FOR CHOOSING BONIPHACE-MD 🌟
+🌟 THANK YOU FOR CHOOSING HACKER MD 🌟
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 ## DEVELOPERS :
