@@ -1,12 +1,11 @@
-
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+mr hacker +𝐼𝑆+𝑀𝑌+𝑂𝑊𝑁𝐸𝑅+𓅓)](https://git.io/typing-svg)
-
 </p>
- <img src="https://files.catbox.moe/zjc6j5.jpg" height="90" width="100%">
+ <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 
- <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+mr+hacker+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+mr+hacker+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+mr+hacker.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒mr+hacker ࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;Ibrahim+Adams+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
+ <a href src="https://files.catbox.moe/zjc6j5.jpg" height="90" width="100%">
+
+ <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙏𝙀𝘾𝙃╺+HACKER+-+𝙈𝘿.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝙒𝙄𝙏𝙀+HACKER+𝙈𝘿;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+HACKER.𝗧𝗘𝗖𝗛;𝙒𝙄𝙏𝙀:+🔥𝙍𝙀𝙙༒HACKER࿐;💕𝙋𝙊𝙒𝙀𝙍+𝙛𝙪𝙡𝙡;🔥𝙬𝙖+𝙋𝙤𝙬𝙚𝙧🔥.&heart;++;Self-taught+Back-Created+By,;HACKER+MD+𝙖𝙢+The,;Best+Is+Bot+For+You+To,;𝘿𝙀𝙋𝙇𝙊𝙔..<3"></a>
  <a href="https://files.catbox.moe/hdhlyw.gif">
- <img alt="HACKER MD" height="300" src="https://files.catbox.moe/hdhlyw.gif">
+ <img alt="HACKER MD" height="300" src="https://files.catbox.moe/zjc6j5.jpg">
 
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+MR HACKER+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+mr hacker+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+MR+HACKER.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒MR HACKER ࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹)](https://git.io/typing-svg)
 
