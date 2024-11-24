@@ -43,7 +43,7 @@
 <p align="center">
   <a href="https://github.com/boniphace478/Boniphace-Md/blob/main/temp/deploy-on-vps.md"><img src="https://img.shields.io/badge/self hosting-3d1513?style=for-the-badge&logo=serverless&logoColor=FD5750"></a>
   <a href="https://dashboard.heroku.com/new?template=https://github.com/boniphace478/BONIPHACE-MD/tree/main"><img src="https://img.shields.io/badge/heroku-9d7acc?style=for-the-badge&logo=heroku&logoColor=430098"></a>
-  <a href="https://whatsapp.com/channel/0029VaiMm7d4yltT51HS1T1G"><img src="https://img.shields.io/badge/CodeSpace-green?colorA=%23ff000&colorB=%23017e40&style=for-the-badge&logo=git&logoColor=white"></a>
+  <a href="https://whatsapp.com/channel/0029Vak2PevK0IBh2pKJPp2K"><img src="https://img.shields.io/badge/CodeSpace-green?colorA=%23ff000&colorB=%23017e40&style=for-the-badge&logo=git&logoColor=white"></a>
 </p>
 
 
@@ -80,7 +80,7 @@ _In my non-coding hours, I enjoy sketching, 3D modeling, gaming, or embarking on
 
 </p>
  
-- <a href="https://github.com/boniphace478/BONIPHACE-MD/fork"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/FORK THIS REPO-h?color=pink&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
+- <a href="https://github.com/boniphace478/MR-HACKER-MD/fork"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/FORK THIS REPO-h?color=pink&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
 
 <a><img src='https://files.catbox.moe/zjc6j5.jpg'/></a>
 star✨ my repo if you like this bot🤖
@@ -89,7 +89,7 @@ star✨ my repo if you like this bot🤖
 
  GET SESSION ID BY 𝕄𝙍 ℍ𝘼ℂ𝙆𝔼𝙍🐓
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𝑇𝐻𝐼𝑆+𝐼𝑆+𝑆𝐸𝑆𝑆𝐼𝑂𝑁+𝑆𝐼𝑇𝐸+🤙)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𝑇𝐻𝐼𝑆+𝐼𝑆+𝑆𝐸𝑆𝑆𝐼𝑂𝑁+ID+🤙)](https://git.io/typing-svg)
 
 </p>
 
